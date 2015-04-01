@@ -1,0 +1,1 @@
+Online schools adalah sebuah jalur singkat bagi sekolah, guru, siswa, orang tua di seluruh indonesia dengan kemudahan dalam sharing data, kirim surat ke guru, siswa, dan semuanya layaknya facebook dengan di dukung google maps untuk mengetahui keberadaan setiap sekolah.
